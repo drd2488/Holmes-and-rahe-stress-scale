@@ -1,0 +1,1 @@
+# Holmes-and-rahe-stress-scale
